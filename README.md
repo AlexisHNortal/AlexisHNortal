@@ -4,7 +4,7 @@
 - 💞️ I’m looking people that want to seek opportunities!
 - 📫 How to reach me alexis.hernandez@nortal.com
 - 😄 Pronouns: Recruiter, Hiring
-- ⚡ Fun fact: If you look opportunities I got one for you!
+- ⚡ If you look opportunities I got one for you!
 
 <!---
 AlexisHNortal/AlexisHNortal is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
